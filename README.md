@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @David09905
+- 👀 I’m interested in Minecraft Development/Configuration
+- 🌱 I’m currently learning Java
+- 📫 How to reach me **notdavidhere** on discord
+- 😄 Pronouns: He/Him
